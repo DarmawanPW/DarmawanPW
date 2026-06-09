@@ -59,6 +59,9 @@ We have done it. (Elon Musk) <br>
 ## ...
 It's time to take action and do something bold. You won't regret it. (Elon Musk) <br>
 
+## ...
+Fail fast, fail often. (Silicon Valley) <br>
+
 ## What do you do when you can't do nothing, but there's nothing you can do?
 You do what you can. (The Boondocks) <br>
 
