@@ -1,45 +1,45 @@
-# Who am I?
-Hi, I am Darmawan Putra Wijaya, but you can call me Dar. <br>
-I am a Bachelor of Mathematics graduate, specializing in Applied and Actuarial Mathemetics. <br>
-I am an INTP. <br>
+# Who is he?
+This is Darmawan Putra Wijaya, but you can call him Dar. <br>
+He is a Bachelor of Mathematics graduate, specializing in Applied and Actuarial Mathemetics. <br>
+Rumor has it that he is an INTP. <br>
 
-# What is my interest?
-As you can see, I am deeply interested in Mathematics. <br>
-However, my interest also extends to Science, Programming, Philosophy, Business, Finance, and Accounting. <br>
-I am ultimately interested in new stuff with huge potential. <br>
+# What is his interest?
+As you can see, he is a nerd proven by his deep interest in Mathematics. <br>
+Not only that, his interests also extends to Science, Programming, Philosophy, Business, Finance, and Accounting. <br>
+He is ultimately interested in the future. <br>
 
-On a side note, I also like:
+On a side note, He also likes to goof off with:
 1. Video games,
 2. Pizza,
 3. Coffee,
 4. Music (especially Nightcore), and
 5. Comedy.
 
-# What do I do now?
-Currently, I am diving into the finance, banking, and insurance industry. <br>
-I am doing business, finance, and programming project. <br>
-On the side, I do small personal project while doing certification. <br>
+# What does he do now?
+Currently, He engages into the finance, banking, and insurance industry. <br>
+He likes to keep himself busy doing business, finance, and programming project. <br>
+On the side, He does small personal projects. <br>
 
-# What do I do next?
-I am looking forward to more business, finance, and programming project. <br>
-I am looking forward to build my own portofolio. <br>
-I am trying to make constant self-improvement.
+# What is he going to do next?
+He keeps looking forward to what he does now, but make it faster, better, and cleverer. <br>
+He wants his own portfolio to look neat. <br>
+He doesn't hesitate to invest in himself.
 
-# What is my end goal?
-I am looking forward to build my own multi-national and multi-sectoral companies of my own group. <br>
-But ultimately, my end goal is to simply be happier. <br>
-All the plan will have to evolve as necessarily needed. <br>
+# What is his end goal?
+His endeavor shows that he is looking forward to build his own group companies. <br>
+But ultimately, he just wants to be happy. <br>
+All his plan will have to evolve as necessarily needed. <br>
 
-# Why do I do what I do?
-I do what I do simply because I choose to do it. <br>
+# Why does he do what he do?
+He once said that, he does what he does simply because he choose to do it. <br>
 
-# How do I do what I do?
-I do it:
+# How does he do what he do?
+He does it:
 1. by working smart and hard;
 2. taking risk and sacrifice; also
 3. with perseverance and no fear of failure.
 
-# What keeps me going?
+# What keeps him going?
 
 ## What is the right way to live through extreme discipline or extreme indulgence?
 If a guitar string is pulled too tight, it will sound off-key. <br>
